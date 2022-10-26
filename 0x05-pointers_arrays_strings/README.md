@@ -1,2 +1,1 @@
-shrines home schooland tuition center
-jehovah rafa
+God is good
